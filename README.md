@@ -43,5 +43,5 @@ I'm interested in the Customer Success role at Miclient as an opportunity to dir
 
 
 ## 📄 Download Full Document
-👉 **[Click Here to Download My Official Resume PDF](https://github.com/Tanishk2006/Tanishk_NimbleGTM/blob/main/Tanishk_NimbleGTM.pdf)**
+👉 **[Click Here to Download My Official Resume PDF](https://github.com/Tanishk2006/Tanishk_Miclient/blob/main/Tanishk_Miclient.pdf)**
 
